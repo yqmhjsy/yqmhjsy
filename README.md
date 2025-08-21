@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&vCenter=true&width=435&lines=Hi,+Im+yqmhjsy;All+hope+was+not+lost.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&vCenter=true&width=435&lines=Hi,+Im+一切美好皆岁月;All+hope+was+not+lost.)](https://git.io/typing-svg)
 ## Hi there 👋
 ### Github Status
 <p align="center">
